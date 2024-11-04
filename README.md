@@ -12,4 +12,5 @@ Hi there 👋🏼
 
 💬 Ask me about ... literally Anything!!
 
-📫 Reach me @: rutendomusara99@gmail.com
+📫 Reach me @: rutendomusara99@gmail.com OR on LINKEDIN@: www.linkedin.com/in/rutendobeverlymusara 
+
